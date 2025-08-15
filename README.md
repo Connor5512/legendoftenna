@@ -1,4 +1,4 @@
-# legendoftenna.github.io
+# connor5512.github.io/legendoftenna
 
 Hello! Brookie here!
 
